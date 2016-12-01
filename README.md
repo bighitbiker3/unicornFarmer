@@ -1,1 +1,1 @@
-#The Worst Start-Up Idea of All Time
+#The Worst Startup Idea of All Time
